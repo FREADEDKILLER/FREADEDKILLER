@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @FREADEDKILLER
+-  i am from egypt
 - 👀 I’m interested in being a football player
 - 🌱 I’m currently learning all subkects
 - 📫 How to reach me my number(01104544953) and my maill (adel.ehab2011@icloud.com)
